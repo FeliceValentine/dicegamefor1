@@ -1,1 +1,1 @@
-# dicegamefor1
+https://felicevalentine.github.io/dicegamefor1/
